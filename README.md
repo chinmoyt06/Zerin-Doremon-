@@ -48,4 +48,5 @@ Created with ❤️ for Zerin AKA Doremon by @chinmoy
 
 ## 📄 License
 
-This project is open source and available for personal use.
+This project is only for personal use.
+any misusages of this will lead to legal actions !
