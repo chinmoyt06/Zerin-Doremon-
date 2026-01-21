@@ -1,5 +1,5 @@
 LINK HERE 👇
-https://zerin-html-95upp1dsc-ckts-projects-09d227d4.vercel.app/
+https://zerin-html-95upp1dsc-ckts-projects-09d227d4.vercel.app
 
 
 
